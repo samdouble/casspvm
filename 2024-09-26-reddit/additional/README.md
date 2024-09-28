@@ -7,7 +7,7 @@
 
 Quelques-unes des évaluations de LEX H:
 - 4 semaines: Crèmerie au Vieux-Port de Montréal, mentionne que c'était difficile de trouver du stationnement.
-- 3 mois: Un restaurant chinois près de Concordia
+- Mai 2024: Un restaurant chinois près de Concordia
 - 10 mois: Quelques évaluations à Paris, France: un fournisseur de services téléphoniques en France (Orange), des hôtels...Google mentionne que c'était un voyage d'affaires.
 - 10 mois: Couche-Tard sur la rue Square-Victoria
 - 1 an: Salon de coiffure au Vieux-Port
@@ -33,3 +33,16 @@ Quelques observations sur les évaluations:
     - dans une évaluation en anglais, a écrit "quebekers"
 - Dans une évaluation faite il y a 6 ans à Arlington, VA, LEX dit `Nice little mall for military personnel... no taxes:)`
 - Dans les 7 dernières années, était à Paris, Washington, Ottawa et Montréal.
+
+Semble être revenu à Montréal en juillet 2020
+Août 2024 Montréal
+
+
+
+https://www.tripadvisor.ca/Restaurant_Review-g28970-d12499855-Reviews-Laduree-Washington_DC_District_of_Columbia.html
+
+https://www.linkedin.com/search/results/people/?firstName=alexandre&geoUrn=%5B%22106383538%22%2C%22104383890%22%2C%22105449217%22%2C%22106413121%22%2C%2290000097%22%5D&keywords=montreal&origin=FACETED_SEARCH&page=12&profileLanguage=%5B%22en%22%2C%22fr%22%5D&searchId=8f9eecc5-03ff-48fb-9da2-cb3026f10b93&sid=EH*
+
+https://www.facebook.com/search/people?q=lex%20h&filters=eyJjaXR5OjAiOiJ7XCJuYW1lXCI6XCJ1c2Vyc19sb2NhdGlvblwiLFwiYXJnc1wiOlwiMTAyMTg0NDk5ODIzNjk5XCJ9In0%3D
+
+https://www.facebook.com/lex.h.2024
